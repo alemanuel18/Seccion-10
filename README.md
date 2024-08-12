@@ -1,2 +1,3 @@
 # Seccion-10
-Daniel Rayo
+
+Alejandro Manuel Jere 24678
